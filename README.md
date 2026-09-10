@@ -1,4 +1,4 @@
-## Hi there 👋
+# just c*h and int w me gang 
 
 <!--
 **lelelemonn/lelelemonn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
