@@ -1,5 +1,5 @@
-# just c*h and int w me gang 
-
+c*h and int w me ^^ 
+ ![gay](https://files.catbox.moe/rt009h.png)
 <!--
 **lelelemonn/lelelemonn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
